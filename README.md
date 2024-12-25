@@ -1,1 +1,1 @@
-belajar jd dari yt.
+belajar jd dari yt
