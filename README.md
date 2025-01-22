@@ -1,1 +1,2 @@
 belajar jd dari yt
+.
