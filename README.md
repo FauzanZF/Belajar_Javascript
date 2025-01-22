@@ -1,5 +1,1 @@
-belajar jd dari yt
-.
-.
-67
-
+belajar js dari yt
