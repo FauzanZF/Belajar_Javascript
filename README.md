@@ -1,5 +1,5 @@
 belajar js dari yt
-.
+..
 .
 .
 .
