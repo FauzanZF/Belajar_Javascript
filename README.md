@@ -1,1 +1,1 @@
-belajar js dari yt
+belajar js dari yt.
